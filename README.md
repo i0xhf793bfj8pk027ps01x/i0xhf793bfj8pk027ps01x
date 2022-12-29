@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **/home/dom#9999**
 
+- 💜 I have a love hate relation ship with anything Math related
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
